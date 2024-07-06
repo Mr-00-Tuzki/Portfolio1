@@ -1,2 +1,2 @@
 # Portfolio1
-Link:http://marketupstocks.me/Portfolio1/
+Link:https://mr-00-tuzki.tech/
